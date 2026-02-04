@@ -48,7 +48,7 @@
 > [!CAUTION]
 > **收到账号后，请第一时间去 Netflix 官网修改邮箱和密码，确保账号安全！**
 
-![奈飞小铺优惠码使用步骤截图 - 输入KANNETFLIX折扣码享88折优惠](/code.avif)
+<img src="/code.avif" alt="奈飞小铺优惠码使用步骤截图 - 输入KANNETFLIX折扣码享88折优惠" width="400">
 
 ---
 
