@@ -36,7 +36,7 @@
 
 ---
 
-## 🤔 如何使用优惠码？
+## 🤔 奈飞小铺优惠码怎么用？
 
 1. 访问 [奈飞小铺官网](https://ihezu.art/75VSnW1)（认准官方链接）
 2. 选择你需要的流媒体服务（如 Netflix 独享号、Disney+ 等）
@@ -95,7 +95,7 @@
 ### 优惠码与售后
 
 <details>
-<summary><strong>Q: KANNETFLIX优惠码长期有效吗？</strong></summary>
+<summary><strong>Q: 奈飞小铺优惠码 KANNETFLIX 长期有效吗？</strong></summary>
 
 是的，`KANNETFLIX` 为2026最新长期有效优惠码，可反复使用享88折。
 </details>
@@ -106,7 +106,7 @@
 联系奈飞小铺官方客服（官网右下角或 Telegram 群），正规平台有售后保障。
 </details>
 
-> [!WARNING]
+> [!NOTE]
 > **热门搜索：** 奈飞小铺靠谱吗、Netflix独享号购买安全吗、奈飞小铺优惠券怎么用
 
 ---
