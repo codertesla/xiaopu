@@ -5,6 +5,8 @@
 >
 > 🔗 **官网直达：** [奈飞小铺官网（点击直达）](https://ihezu.art/75VSnW1)
 >
+> 📖 **优惠码专题页：** [xiaopu.lovable.app](https://xiaopu.lovable.app/)
+>
 > ⭐ **核心推荐：** Netflix 4K 独享号，¥59/月，可改邮箱，稳定防封！
 
 ---
@@ -111,6 +113,13 @@
 
 ---
 
+## 🌐 优惠码专题页
+
+想要更直观的体验？访问我们的在线专题页，获取最新优惠信息：
+
+👉 **[xiaopu.lovable.app](https://xiaopu.lovable.app/)** — 奈飞小铺优惠码互动专题页
+
+---
 
 ## 💖 参与贡献
 
