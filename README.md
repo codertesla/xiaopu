@@ -3,9 +3,9 @@
 > [!IMPORTANT]
 > **2026最新优惠码：** `KANNETFLIX` — 全场88折，Netflix独享号购买优惠
 >
-> 🔗 **官网直达：** [奈飞小铺官网（点击直达）](https://ihezu.art/75VSnW1)
+> 🔗 **官网直达：** [奈飞小铺官网](https://ihezu.art/75VSnW1)
 >
-> 📖 **优惠码专题页：** [xiaopu.lovable.app](https://xiaopu.lovable.app/)
+> 📖 **优惠码专题页：** [奈飞小铺优惠码专题页](https://xiaopu.lovable.app/)
 >
 > ⭐ **核心推荐：** Netflix 4K 独享号，¥59/月，可改邮箱，稳定防封！
 
@@ -117,7 +117,7 @@
 
 想要更直观的体验？访问我们的在线专题页，获取最新优惠信息：
 
-👉 **[xiaopu.lovable.app](https://xiaopu.lovable.app/)** — 奈飞小铺优惠码互动专题页
+👉 [奈飞小铺优惠码专题页](https://xiaopu.lovable.app/)
 
 ---
 
